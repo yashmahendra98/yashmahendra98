@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi there! My name is Yash Mahendra, and I'm a passionate AI and Data Science learner. I'm currently pursuing a graduate certificate in Ontario and am seeking a co-op placement from January to April 2025. I'm excited to leverage my knowledge and skills in a practical setting, working on cutting-edge projects and developing valuable industry expertise.
+Hi there! My name is Yash Mahendra, and I'm a passionate AI and Data Science learner. I have a  graduate certificate in Ontario and am seeking new opportunities. I'm excited to leverage my knowledge and skills in a practical setting, working on cutting-edge projects and developing valuable industry expertise.
 
 
 ## 🌐 Socials:
